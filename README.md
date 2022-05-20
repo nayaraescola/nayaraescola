@@ -1,0 +1,3 @@
+- 👋 oi, meu nome é nayara
+- 👀 meu Email é @nayara.paulino@escola.pr.gov.br
+- 🌱 e é isso
